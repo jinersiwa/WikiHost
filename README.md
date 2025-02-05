@@ -1,4 +1,4 @@
-# 2024 Latest WikiHost Coupon Codes - Organized Summary of WikiHost Deals
+# 2025 Latest WikiHost Coupon Codes - Organized Summary of WikiHost Deals
 
 ## WikiHost Introduction
 WikiHost, formerly known as 50OVZ and 50KVM, is a well-established hosting provider known for its high-speed VPS and web hosting services. With data centers in Hong Kong, Korea, Japan, and the USA, WikiHost offers reliable and efficient hosting solutions tailored for a global audience.
